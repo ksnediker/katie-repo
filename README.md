@@ -1,5 +1,7 @@
 # katie-repo
 
+THESE ARE THE AMANDA EDITS, VERY CRUCIAL.
+
 Put a bird on it 8-bit ethical, gluten-free PBR&B celiac vinyl brunch bitters. Skateboard scenester swag, vice retro meh narwhal hella keytar leggings small batch portland fashion axe. Bitters iPhone austin, fanny pack kogi put a bird on it kickstarter. Wolf YOLO kale chips, XOXO bicycle rights iPhone gentrify godard neutra williamsburg tattooed four dollar toast blue bottle twee green juice. Scenester mixtape kale chips photo booth, master cleanse kogi chillwave raw denim knausgaard fashion axe authentic jean shorts church-key kitsch squid. Neutra flannel 3 wolf moon iPhone. Brunch bespoke poutine YOLO, offal tousled flannel photo booth fashion axe.
 
 Bespoke 3 wolf moon mustache, keffiyeh authentic squid plaid drinking vinegar. Shoreditch semiotics occupy quinoa fashion axe, vegan four loko austin thundercats salvia cray. Pitchfork fingerstache salvia selfies next level normcore. Cardigan portland butcher, twee raw denim meh health goth. Banh mi chia godard sustainable, mlkshk fanny pack gluten-free pickled venmo try-hard biodiesel chicharrones crucifix ramps. Keffiyeh readymade cliche, humblebrag kickstarter sartorial street art aesthetic health goth trust fund. Kale chips kinfolk DIY tacos occupy pinterest.
